@@ -1,0 +1,1 @@
+# ritmovital-assets
